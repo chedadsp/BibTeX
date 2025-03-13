@@ -8,6 +8,8 @@ https://ftn.uns.ac.rs/2533/nenad-cetic
 
 https://www.rt-rk.uns.ac.rs/?q=nastavno-osoblje/doc-dr-nenad-%C4%8Deti%C4%87
 
+https://academy.nit-institute.com/dr-nenad-cetic/
+
 Social networks:
 
 https://www.linkedin.com/in/nenad-cetic/
