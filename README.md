@@ -10,6 +10,8 @@ https://www.rt-rk.uns.ac.rs/?q=nastavno-osoblje/doc-dr-nenad-%C4%8Deti%C4%87
 
 https://academy.nit-institute.com/dr-nenad-cetic/
 
+https://orcid.org/0000-0002-9267-5210
+
 Social networks:
 
 https://www.linkedin.com/in/nenad-cetic/
