@@ -12,6 +12,8 @@ https://academy.nit-institute.com/dr-nenad-cetic/
 
 https://orcid.org/0000-0002-9267-5210
 
+https://dblp.org/pid/133/6378.html
+
 Social networks:
 
 https://www.linkedin.com/in/nenad-cetic/
